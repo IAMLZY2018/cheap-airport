@@ -8,7 +8,7 @@
 https://xn--9kqz23b19z.com/#/register?code=taCQnWVh
 
 顶级机场：年付15.6元，每月200G
- https://xn--mes358a9urctx.com/#/register?code=Mwq2FRT2
+https://xn--mes358a9urctx.com/#/register?code=Mwq2FRT2
 
 一分机场：2元100G
 https://xn--4gqx1hgtfdmt.com/#/register?code=e4ThoSiK
