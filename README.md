@@ -1,7 +1,10 @@
 # cheap-airport
 便宜免费好用的机场
+
 # cheap-airport
-2元左右的便宜好用的机场，大家不要充值多了，防止跑路：
+
+2025最新可用2元左右的便宜好用的机场，大家不要充值多了，防止跑路：
+
 良心云：月付2元100G
 https://xn--9kqz23b19z.com/#/register?code=taCQnWVh
 
